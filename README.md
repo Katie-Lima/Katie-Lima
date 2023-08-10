@@ -9,21 +9,21 @@ Iniciei minha carreira profissional como professora primária, lidando com aulas
 
 ### Empreendedor Autônomo
 #### Gerente Geral
-setembro de 2006 - Presente (17 anos)
+setembro de 2006 - Presencial (10 anos)
 
-Empreendedor autônomo apaixonado por brownies e tecnologia, trazendo o melhor dos dois mundos para criar uma experiência excepcional. Utilizando técnicas de automação e otimização, fundei um serviço inovador de confecção e distribuição de brownies gourmet. Cada brownie é uma obra de arte, produzida com a mesma precisão que aplico no desenvolvimento de soluções tecnológicas. Estou comprometido em oferecer qualidade e eficiência, e estou aberto a parcerias que unam a doçura da confeitaria com a inteligência da tecnologia.
+Empreendedor autônomo apaixonado por brownies e tecnologia, trazendo o melhor dos dois mundos para criar uma experiência excepcional. Utilizando técnicas de automação e otimização, fundei um serviço inovador de confecção e distribuição de brownies gourmet. Cada brownie é uma obra de arte, produzida com a mesma precisão que aplico no desenvolvimento de soluções tecnológicas. Comprometido em oferecer qualidade e eficiência, unindo a doçura da confeitaria com a inteligência da tecnologia.
 
 ### Bom de Vera Indústria de Alimentos Ltda
 #### Gerente Geral
-setembro de 2004 - Presente (19 anos)
+setembro de 2004 - Presente (3 anos)
 
 Recife, Pernambuco, Brasil
 
-Gerir equipe de vendas da confeitaria. Gerir equipe de produção e equipe de distribuição de produtos para as filiais.
+Gerir equipe de vendas da confeitaria, também a equipe de produção e distribuição de produtos para as filiais.
 
 ### Novo Rio Recicláveis
 #### Telefonista/Encarregada de Tráfego
-outubro de 2002 - Presente (20 anos 11 meses)
+outubro de 2002 - Presente (2 anos)
 
 Jaboatão dos Guararapes, Pernambuco, Brasil
 
@@ -31,7 +31,7 @@ Atender os centros de distribuição de materiais, agendar coleta dos produtos. 
 
 ### PROCON - Prefeitura Municipal de Jaboatão dos Guararapes
 #### Digitadora
-abril de 1996 - Presente (27 anos 5 meses)
+abril de 1996 - Presente (6 anos)
 
 Prazeres, Jaboatão dos Guararapes - PE
 
@@ -39,7 +39,7 @@ Digitar as atas das audiências ditadas pelo conciliador e as intimações para 
 
 ### Escolinha Arco-Íris
 #### Professora
-novembro de 1992 - Presente (30 anos 10 meses)
+novembro de 1992 - Presente (3 anos)
 
 Recife, Pernambuco, Brasil
 
